@@ -1,4 +1,4 @@
 # hello-world2
 
-I'm Evan Sharp,
+I'm Evan Sharp, I live alone and have 2 cats
 
