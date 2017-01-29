@@ -13,4 +13,5 @@ Next fight is Pena vs Schevchenko, my prediction is Shevchenko by TKO.
 Shevchenko won by arm bar in the second round.
 My favorite Star Wars is Empire Strikes back.
 My favorite batman is The Dark Knight.
+I can't stand Harry Potter.
 
