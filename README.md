@@ -17,5 +17,5 @@ I can't stand Harry Potter.
 I can only watch the LOTR trilogy once every 10 years.  They are just too long for me.
 I think the hobbit movies are horrible movies that should never have been made.
 I like the star wars prequel movies, i'll fight anyone who says they are not Star Wars movies.
-I also don't like the Force Awakens very much, I think Disney will ruin the star wars universe
+I also don't like the Force Awakens very much, I think Disney will ruin the star wars universe.
 
